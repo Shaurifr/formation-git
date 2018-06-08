@@ -21,5 +21,4 @@ Il est très fort. Il est très gourmand. Heureusement, il y a beaucoup de poiss
 # Chapitre 6
 
 # Chapitre 7
-l'ours revenant chez lui avec son ami sans eux sinon ils auraient 
-consomés une omelette.....
+l'ours revenant chez lui avec son ami sans eux sinon ils auraient consomés une omelette.....

@@ -21,3 +21,9 @@ Il est très fort. Il est très gourmand. Heureusement, il y a beaucoup de poiss
 # Chapitre 6
 
 # Chapitre 7
+
+# Conclusion
+
+Après toutes ces aventures, Riri et Fifi s'aperçoivent qui la vie nomade leur correspond, ils ont pour projet de construire un bus magique afin de pouvoir
+voyager plus loin et plus longtemps, ils partent donc pour Sanctury, la capitale, à la rencontre de Loulou, un mécanicien plutôt excentrique. 
+Cependant, ils se retrouvent face à un Colosse... 

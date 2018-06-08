@@ -7,6 +7,7 @@ Ce fichier raconte son histoire
 
 Après autant d'émotions, l'ours et sa famille allèrent se coucher.
 c'est bien de pouvoir hiberner...
+ca dure longtemps et il n'y a rien à dire quand on dort...
 
 # Chapitre 2
 

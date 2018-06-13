@@ -11,7 +11,7 @@
 
 
 # Chapitre 4
-
+l'ours montre la carte à son meilleur ami avec qui il part à l'aventure
 
 # Chapitre 5
 

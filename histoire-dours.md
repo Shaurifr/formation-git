@@ -17,7 +17,8 @@
 
 
 # Chapitre 6
-
+L'ours affronte un pingouin manchot teigneux
+avec son ami Tonio le blaireau. Bim bam boum!!!
 
 # Chapitre 7
 

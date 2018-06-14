@@ -22,3 +22,6 @@
 # Chapitre 7
 
 
+# Conclusion
+    Une fois l'ours est son ami sont rentré ils fête leur
+    victoire est invite des amis en leur racontent leur exploit

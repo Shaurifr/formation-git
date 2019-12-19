@@ -15,7 +15,17 @@ select coffre from carte_au_trésor
 ```
 
 # Chapitre 4
+## montre la carte à son meilleur ami
 
+- Il cherche la carte dans sa poche.
+- Il déplie la carte.
+- Il met à l'endroit la carte et la montre à son ami.
+
+## il part à l'aventure
+
+1. Ils se regardent
+1. Se mettent d'accord sur le chemin
+1. et partent à l'aventure
 
 # Chapitre 5
 

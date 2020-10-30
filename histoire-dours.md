@@ -23,8 +23,6 @@ L'ours pris peur et s'enfuit en courant dans la direction inverse pendant plusie
 Un moment après, essouflé, l'ours eut l'idée d'appeler son pote Momo le Hérisson pour qu'il vienne le chercher.  
 Au bout d'une heure, Momo arriva avec sa Renault 4L, et ils purent sortir de cette forêt obscure.  
 
-### FIN
-
 # Chapitre 3
 
 

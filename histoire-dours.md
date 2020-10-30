@@ -2,10 +2,10 @@
 
 
 # Chapitre 1 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. 
-Maecenas finibus mi eget nibh efficitur, vel elementum est rutrum. 
-Nullam malesuada, tellus sed iaculis sollicitudin, neque tellus fringilla libero, eu venenatis ante turpis nec nisi. 
- 
+
+Voici l'incroyable de Linus l'ours de la forêt.  
+Linus le frère jumeau vit dans les montagnes, cet ours passe son temps à engloutir des poissons.   
+
 
 # Chapitre 2
 

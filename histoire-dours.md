@@ -1,8 +1,8 @@
 # Introduction
-Il était une fois, en des temps fort reculés, l'histoire d'un ours au destin extraordinaire. 
-Enfant, Linus était un ours comme les autres, occupant ses journées à jouer, manger et dormir. Parfois, il accompagnait sa mère à la chasse, l'aidait à attraper des saumons dans la rivière, mais ce qu'il préférait, c'était les manger. La vie d'un ours comme il en existe tant d'autres.
-Pourtant, sa vie allait basculés du jour au lendemain. 
-Mais avant ça, laissez moi vous présentez la famille de Linus. Il y a Margareth, la mère, une ourse respectée à la taille imposante et qui est aussi la cheffe du clan. Ursarig, le père, a disparu peu après la naissance de Linus. Et enfin, Linux, le frère jumeau, inséparable compagnon, toujours là quand il s'agit de faire des bétises ou de manger. 
+Il était une fois, en des temps fort reculés, l'histoire d'un ours au destin extraordinaire.  
+Enfant, Linus était un ours comme les autres, occupant ses journées à jouer, manger et dormir. Parfois, il accompagnait sa mère à la chasse, l'aidait à attraper des saumons dans la rivière, mais ce qu'il préférait, c'était les manger. La vie d'un ours comme il en existe tant d'autres.  
+Pourtant, sa vie allait basculer du jour au lendemain.   
+Mais avant ça, laissez moi vous présentez la famille de Linus. Il y a Margareth, la mère, une ourse respectée à la taille imposante et qui est aussi la cheffe du clan. Ursarig, le père, a disparu peu après la naissance de Linus. Et enfin, Linux, le frère jumeau, inséparable compagnon, toujours là quand il s'agit de faire des bêtises ou de manger.  
 Maintenant, je vais vous conter l'histoire incroyable de Linus l'ours de la forêt. 
 
 # Chapitre 1 

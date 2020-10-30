@@ -13,6 +13,15 @@ Linus le frère jumeau vit dans les montagnes, cet ours passe son temps à englo
 
 # Chapitre 2
 
+## Un ours qui se perd en forêt.
+
+L'ours se promenait en forêt, depuis un moment, déjà en écoutant du lourd Booba dans les oreilles.  
+Au bout d'un moment, il se rend compte qu'il ne reconnait plus l'endroit où il se trouve.  
+Il regarde autour de lui en cherchant un quelconque chemin familier.  
+Les arbres étaient sombres, recroquevillés, on aurait dit qu'ils voulaient l'attraper avec leurs doigts crochus.  
+L'ours pris peur et s'enfuit en courant dans la direction inverse pendant plusieurs minutes.  
+Un moment après, essouflé, l'ours eut l'idée d'appeler son pote Momo le Hérisson pour qu'il vienne le chercher.  
+Au bout d'une heure, Momo arriva avec sa Renault 4L, et ils purent sortir de cette forêt obscure.  
 
 # Chapitre 3
 

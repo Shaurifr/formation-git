@@ -7,6 +7,9 @@ Maintenant, je vais vous conter l'histoire incroyable de Linus l'ours de la for�
 
 # Chapitre 1 
 
+Voici l'incroyable de Linus l'ours de la forêt.  
+Linus le frère jumeau vit dans les montagnes, cet ours passe son temps à engloutir des poissons.   
+
 
 # Chapitre 2
 

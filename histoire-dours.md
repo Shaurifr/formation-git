@@ -25,6 +25,12 @@ Au bout d'une heure, Momo arriva avec sa Renault 4L, et ils purent sortir de cet
 
 # Chapitre 3
 
+Comme tous les enfants ours de son age, il connaissait les légendes et aventures de cette ours de renom, et encore plus car c'était son arrière grand-père. Parmis les aventures de son arrière grand-père, la plus connue, la plus fascinante, celle qui lui value le surnom de Winnie a la patte d'or et l'histoire de la source dorée.
+
+Tandis que Winnie voyageait à travers le monde, un beau jour il se perdit dans une forêt, pendant des jours il chercha la sortit mais en vain. Les vivres vinrent a manquer et son ventre criait famine.C'est dans ce moment désesperer que Winnie ne pouvant plus supporter ca faim et ca lente agonie, sauta dans un précipice afin de rejoindre le mielhalla. Il sauta et perdit connaissance.Lorsqu'il se réveilla, il trouva au fond du gouffre une source inépuisable de miel où  pendant 5 ans il s'abreuva et ne se nourrit que de miel au point que ca patte, a force de se  sustenté ne devient dorée.
+
+Tandis que l'ours rangeait son grenier, il tomba sur le vieux coffre de son arrière grand-père, Winnie patte d'or,lui avait légué. Intrigué il fouilla le coffre mais ne trouva que des babioles et objets sans intérets. Enervé et décu,il laissa tombé le coffre par terre.C'est a ce moment là qu'il découvrit un double fond. Tout excité il ouvrit le double fond et tomba sur une vieille carte toute moisie mais qui semblait encore lisible. Cette carte s'appellait : Le chemin vers la source dorée. 
+
 
 # Chapitre 4
 

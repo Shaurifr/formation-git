@@ -32,7 +32,12 @@ Tandis que Winnie voyageait à travers le monde, un beau jour, il se perdit dans
 Tandis que l'ours rangeait son grenier, il tomba sur le vieux coffre de son arrière-grand-père, Winnie patte d'or, lui avait légué. Intrigué, il fouilla le coffre, mais ne trouva que des babioles et objets sans intérêts. Énervé et déçu, il laissa tomber le coffre par terre. C'est à ce moment-là qu'il découvrit un double fond. Tout excité, il ouvrit le double fond et tomba sur une vieille carte toute moisie, mais qui semblait encore lisible. Cette carte s'appelait : le chemin vers la source dorée. 
 
 # Chapitre 4
-
+### L'aventure de Petit Ours et Son copain le Lama
+Petit ours appelle son copain le Lama Faché pour lui parler d'une histoire de foufou !  
+**Ni une ni deux** le lama enfile sa **laine** et rejoint petit ours pour découvrir cette histoire.
+Les deux compères décident rapidement de suivre cette carte au trésor et de débuter l'aventure ensemble !
+Faché étant tout exciter par cette aventure qui débutait il décida de voler le meilleur moyen de locomotion possible dans la forêt.  
+Le Hummer de son papa, musique à fond ils partirent vers leurs destin de nouveaux riches !  
 
 # Chapitre 5
 

@@ -27,7 +27,13 @@ La fraterie était des ours conteur. Ils connaissaient énormément d’histoire
 
 # Chapitre 6
 
+La tempête fut si violente Benjamin3 tomba dans l'eau et fut perdu à jamais "musique du titanic". Nino, l'ours survivant pleurait ses deux frères et son meilleur ami. Il décida de se lancer dans la fabrication d'un vaisseaux et de rejoindre l'USS enterprise, étant fan de star trekk. Une fois à bord il était chargé de s'occuper de Marius le terrible.
+
+... quelques jours plus tard ... 
+
 L'ours activa ses bottes à proto-injections nucléaire à pleine puissance et se dirigea vers le sas de décompression pour récupérer de l'oxygène. Pendant qu'il récupérait son souffle, il regarda par la lucarne du cockpit et vit son ennemi s'envoler dans le vide intersidéral de lespace. C'était fini, il avait vaincu Marius le terrible.
+
+Il repensa a ses moments d'insouscience dans les Pyrénées avec son petit saumon fumé. Il n'était plus le même ours. La guerre avait eu raison du jeune ourson qu'il était en quittant la Terre
 
 # Chapitre 7
 

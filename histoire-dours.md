@@ -16,10 +16,9 @@ La fraterie était des ours conteur. Ils connaissaient énormément d’histoire
 # Chapitre 2
 Heureusement à la fin de tous ces contes, les gentils animaux triomphaient toujours et les nombreux auditeurs de l’ours, repartaient tous les soirs chez eux le sourire aux lèvres et la tête remplies de belles images. Ils pouvaient alors aller s’endormir tranquillement et se laisser transporter par de beaux rêves.
 
-Ils étaient les amis de  tous et étaientt devenu des célébrité dans la chaine des Pyrénées que tout le monde voulait rencontrer et surtout écouter.
+Ils étaient les amis de  tous et étaient devenus des célébrités dans la chaine des Pyrénées que tout le monde voulait rencontrer et surtout écouter.
 
 Mais un jour, en arrivant près du lac Garo pour faire sa toilette comme tous les midis, ils furent surpris d’y trouver un rassemblement important d’animaux.
-L ours peche du saumon pour manger
 
 # Chapitre 3
 

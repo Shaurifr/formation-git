@@ -14,7 +14,7 @@ Mais pour quelle raison ?
 La fraterie était des ours conteur. Ils connaissaient énormément d’histoires sur les animaux de la montagne. Des récits imaginaires et parfois vrais relatant des aventures incroyables vécues par des animaux dont certains devinrent célèbres. Ponctués de rebondissements, de suspens et parfois même de frissons, les ours savaient raconter les histoires et captiver l’attention de la foule. 
 
 # Chapitre 2
-
+L ours peche du saumon pour manger
 
 # Chapitre 3
 

@@ -21,7 +21,7 @@ Ils étaient les amis de  tous et étaient devenus des célébrités dans la cha
 Mais un jour, en arrivant près du lac Garos, ils furent surpris d’y trouver un rassemblement important d’animaux.
 
 # Chapitre 3
-
+Complétement désespérés, les trois frères continuent d'avancer sans but précis. C'est alors qu'ils aperçoivent au loin, dans un arbre, quelque chose qui n'a rien à faire ici. Ils s'approchent tout doucement et découvrent une carte aux trésors !
 
 # Chapitre 4
 

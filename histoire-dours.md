@@ -36,10 +36,11 @@ Complétement désespérés, les trois frères continuent d'avancer sans but pr�
 >>>>>>> b06c3fa (Tâche 6)
 # Chapitre 4
 
-L'ours, après avoir trouvé la carte, la montre à son copain d'enfance : Benjamin3.
+Budd, Rorca et Ninho les 3 ours montrèrent leur carte à Benjamin3, un pote du collège à Rorca.
 Ensemble, ils partent dans une longue et difficile aventure qui n'est pas le titre CDA !
-En effet, avec le titre CDA, soit Benjamin3, soit l'ours aurait réussi.
-Ils partent donc à l'aventure en forêt Amazonie, bien plus simple !
+Après quelques temps à déchiffrer la carte (c'est des ours et Benjamin3 ne sait pas lire non plus),
+ils saisissent que la destination est loin !!
+Ils partent donc à l'aventure en forêt Amazonie.
 
 # Chapitre 5
 

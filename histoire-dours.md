@@ -18,7 +18,7 @@ Heureusement à la fin de tous ces contes, les gentils animaux triomphaient touj
 
 Ils étaient les amis de  tous et étaient devenus des célébrités dans la chaine des Pyrénées que tout le monde voulait rencontrer et surtout écouter.
 
-Mais un jour, en arrivant près du lac Garo pour faire sa toilette comme tous les midis, ils furent surpris d’y trouver un rassemblement important d’animaux.
+Mais un jour, en arrivant près du lac Garo pour faire leur toilette comme tous les midis, ils furent surpris d’y trouver un rassemblement important d’animaux.
 
 # Chapitre 3
 

@@ -8,7 +8,7 @@ Ils vivaient tous paisiblement, quand un jour il se passa quelque chose d'inatte
 Une menace planaît sur le forêt !
 
 # Chapitre 1 
-
+Je vais vous raconter l'histoire d'un ours
 
 # Chapitre 2
 

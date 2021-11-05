@@ -27,6 +27,7 @@ La fraterie était des ours conteur. Ils connaissaient énormément d’histoire
 
 # Chapitre 6
 
+L'ours activa ses bottes à proto-injections nucléaire à pleine puissance et se dirigea vers le sas de décompression pour récupérer de l'oxygène. Pendant qu'il récupérait son souffle, il regarda par la lucarne du cockpit et vit son ennemi s'envoler dans le vide intersidéral de lespace. C'était fini, il avait vaincu Marius le terrible.
 
 # Chapitre 7
 
